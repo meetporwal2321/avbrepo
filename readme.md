@@ -1,0 +1,1 @@
+this is my read me file and i want you to read this as my read me file and i want me to understand that the this which i want you to understand is to not to do the same shit again ever in life even if feels the same way you felt and i know you won't feel the same for me and i 
